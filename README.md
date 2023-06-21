@@ -1,1 +1,2 @@
-![cost table](https://github.com/myrnamlima/verbose-octo-barnacle/assets/60662085/0a24ba0d-8f94-4c20-b0c6-1b261403152c)
+
+![cost table](https://github.com/myrnamlima/verbose-octo-barnacle/assets/60662085/6cb4779f-9556-4a83-8894-05b6b98eb5dd)
